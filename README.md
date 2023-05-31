@@ -8,7 +8,7 @@ Meu nome é Agatha
 
 ### Você pode entrar em contato comigo 📫
 
-agatharocha209@mail.com
+agatharocha209@gmail.com
 
 @agatha_jr
 
